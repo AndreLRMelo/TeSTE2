@@ -6,3 +6,5 @@ Este é um repositorio teste
 Saiba mais em:
 
 Gostou do curso?
+
+Se inscreve no canal:
