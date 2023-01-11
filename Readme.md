@@ -10,3 +10,5 @@ Gostou do curso?
 Se inscreve no canal:
 
 Segue nas redes sociais
+
+Obrigado pela sua presença!
